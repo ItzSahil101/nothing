@@ -1,3 +1,1 @@
-messi
 neymar
-ronaldo
